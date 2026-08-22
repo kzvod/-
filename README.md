@@ -29,6 +29,7 @@
   <strong>📌 樱花动漫最新官方地址：</strong>
 </h3>
 <p>💖 ➡️ <strong>【最新地址 | 永久地址】</strong> ：<a href="https://www.yhdmfan.cc">https://www.yhdmfan.cc</a></p>
+<p>💖 ➡️ <strong>【最新地址 | 永久地址】</strong> ：<a href="https://www.m.yinghuafan.com">https://m.yinghuafan.com</a></p>
 
 <p>💖 ➡️ <strong>【APP客户端下载】</strong> ：<a href="https://www.yhdz.one/">https://www.yhdz.one</a></p>
 

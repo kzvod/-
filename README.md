@@ -35,6 +35,8 @@
 
 <p>💖 ➡️ <strong>【网友汇总的动漫在线看】</strong> ：<a href="https://www.iyh7.com/">https://www.iyh7.com</a></p>
 
+<p>💖 ➡️ <strong>【最新地址 | 永久地址】</strong> ：<a href="https://www.yinhuafan.com">https://www.yinhuafan.com</a></p>
+
 
 <h3>
   <strong>✨ 樱花动漫介绍 ✨</strong>
